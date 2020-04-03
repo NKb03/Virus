@@ -5,4 +5,4 @@ Nikolaus war auch hier!
 
 "Wenn Wahlen etwas ändern würden, dann wären sie verboten" ~Wladimir Putin
 
-"Ich als Expert würde sagen: Wir müssen den Gürtel noch viel enger schnüren" ~ Das Känguru
+"Ich als Experte würde sagen: Wir müssen den Gürtel noch viel enger schnüren" ~ Das Känguru
